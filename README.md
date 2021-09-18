@@ -1,4 +1,4 @@
-## Hi there, I'm [Paolo!](https://paolotormon.github.io/profile) 👋
+## Hi there, I'm [Paolo!](https://paolotormon.com) 👋
 
 ### The Languages and Tools I use are:  
 
